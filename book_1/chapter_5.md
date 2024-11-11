@@ -41,7 +41,7 @@ Harry counted out five little bronze coins, and the owl held out his leg so Harr
 
 Hagrid yawned loudly, sat up, and stretched.
 
-"We gotta dip Harry, lots ter do today, gotta get up ter London an' cop all yer school shit and stuff."
+"We gotta dip Harry, lots ter do today, gotta get up ter London an' cop all yer school crap and stuff."
 
 Harry was turning over the wizard coins and looking at them. Bro just thought of something that totally killed the vibe.
 
@@ -65,7 +65,7 @@ Harry dropped the bit of glizzy he was holding.
 
 "*Goblins?*"
 
-"Yeah — so you'd be trippin' ter try an' rob them no cap. Never mess with goblins, Harry. Gringotts is the safest place in the world fer anything yeh want ter keep safe — 'cept maybe Hogwarts. Matter o' fact, I needa hit up Gringotts anyways. Fer my boi Dumbledore. Some Hogwarts shit." Hagrid puffed himself up. "My bro got me doing hella important ish. Picking your ass up — grabbing that ish from Gringotts — Buddy knows I got his back," Hagrid flexed on Harry, "So you chill to go?"
+"Yeah — so you'd be trippin' ter try an' rob them no cap. Never mess with goblins, Harry. Gringotts is the safest place in the world fer anything yeh want ter keep safe — 'cept maybe Hogwarts. Matter o' fact, I needa hit up Gringotts anyways. Fer my boi Dumbledore. Some Hogwarts crap." Hagrid puffed himself up. "My bro got me doing hella important ish. Picking your ass up — grabbing that ish from Gringotts — Buddy knows I got his back," Hagrid flexed on Harry, "So you chill to go?"
 
 Harry followed Hagrid out onto the rock. The weather was hella nice and the ocean looked all nature'y. The boat Uncle V copped was still chillin' where they'd left it, but it had tons of water in after the storm. 
 
@@ -83,4 +83,6 @@ They sat down in the boat, Harry staring at Hagrid, trying to imagine him flying
 
 "Nah bruh, I gotchu" said Harry, tryna cop a glimpse of more magic. 
 
-pg. 64 — chapter not finished yet
+Hagrid pulled out a pink umbrella which was a huge yikes, tapped the boat, and they sped off looking like sigmas.
+There was an awkward silence before Hagrid opened his yapper again. "The tea is that Gringotts is protected by a buff dragon, I've always dreamed fer meself a dragon." Harry thought Hagrid should go touch some grass because he knew that wouldn't happen.
+
